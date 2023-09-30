@@ -4,6 +4,6 @@
 - If u play games u can add me on steam at --> https://steamcommunity.com/profiles/76561198246099802/ 
 - For Valorant U can add me on --> Fornicator#DOTA
 - I spend my time learning to code, game, swimming and football
-- I Wish to work for NVIDIA Corp one day and i am working towards it 
+
 
 Thank You for reading and have a good day!!!
